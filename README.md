@@ -1,1 +1,1 @@
-![](http://www.powerlean.top/images/blackpow.png)
+![](http://www.powerlean.top/images/powblack.png)
