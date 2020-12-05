@@ -1,1 +1,1 @@
-![](www.powerlean.top/blob/blackpow.png)
+![](http://www.powerlean.top/images/photoGirl.png)
